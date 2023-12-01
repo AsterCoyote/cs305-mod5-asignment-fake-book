@@ -4,7 +4,8 @@ But for real tho. Also read the epic story.
 
 
 
+Added a second chapter to book. -Yahir
+
 
 ## Hypothetical Module
-
 "It has four wheels and it runs. It's a car."
