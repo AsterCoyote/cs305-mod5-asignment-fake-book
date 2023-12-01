@@ -4,7 +4,8 @@ But for real tho. Also read the epic story.
 
 
 
-Added a second chapter to book. -Yahir
+## Hypothetical Module
+A second chapter would be cool.
 
 
 ## Hypothetical Module
